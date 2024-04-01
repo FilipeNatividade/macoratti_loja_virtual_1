@@ -1,0 +1,1 @@
+# macoratti_loja_virtual_1
